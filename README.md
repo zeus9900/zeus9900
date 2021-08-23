@@ -1,4 +1,4 @@
-- 👋 Hi, I’m rohit my id is zeus9900
+- 👋 Hi, I’m Rohit an average looking boy interested in tech.. my id is zeus9900
 - 👀 I’m interested in ... two things first one is coding and second is my life partner.
 - 🌱 I’m currently learning ... coding in python.
 - 📫 How to reach me ... mail on rpashi83@gmail.com
